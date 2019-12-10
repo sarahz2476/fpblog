@@ -1,6 +1,6 @@
 # 10/25/2019:
 
-#### For many of my reseach I use [www.encyclopedia.com] (https://www.encyclopedia.com/social-sciences-and-law/law/law/forensic-science)
+#### For many of my reseach I use [www.encyclopedia.com](https://www.encyclopedia.com/social-sciences-and-law/law/law/forensic-science)
 Today I researched about the important events about how forensic came to be. The earliest known forensic science is archimedes some in the 287 - 212 bc. He figured out the king’s crown was not made out of gold. I’ve also learned that identical twins have different fingerprints. I was shocked to find out that the first crime analysis opened up in Los Angeles because this state is portrayed more as like a really outgoing state. Plus many celebs live there as hollywood is also there.
 
 # 10/28/2019:
